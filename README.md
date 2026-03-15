@@ -1,0 +1,1 @@
+# python basics course at the iti openSource 9 months proogram :__:
